@@ -1,1 +1,1 @@
-OOPS i Didnt Study- Your Last Minute Guide to being the best of yourself 
+OOPS!IDidntStudy - The Ultimate Last Minute Study Platform
